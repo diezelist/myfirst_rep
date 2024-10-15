@@ -1,2 +1,2 @@
 # myfirst_rep
-just testing bei CB and co (BBQ)
+just testing at CB and co (BBQ)
